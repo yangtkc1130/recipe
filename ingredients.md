@@ -5,7 +5,7 @@ Scale
 1x
 2x
 8 tablespoons of salted butter
-1/2 cup white sugar (I like to use raw cane sugar with a coarser texture)
+1/2 cup brown sugar 
 1/4 cup packed light brown sugar
 1 teaspoon vanilla
 1 egg
