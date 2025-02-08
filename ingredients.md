@@ -1,3 +1,4 @@
+Let's begin!
 Ingredients
 Units USM
 Scale
@@ -13,3 +14,4 @@ Scale
 1/2 teaspoon baking soda
 1/4 teaspoon salt (but I always add a little extra)
 3/4 cup chocolate chips (I use a combination of chocolate chips and chocolate
+Enjoy my recipe!
